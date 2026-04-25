@@ -1,0 +1,1 @@
+# caso-de-sucesso-scrum-intel
